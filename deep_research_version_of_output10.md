@@ -1,7 +1,3 @@
-Great. I’ll gather the latest 2025 research and insights on artificial reefs, with a focus on their ecological impact for marine conservation. The article will be written in an informative and analytical tone, suitable for environmental scientists and professionals interested in sustainability and marine biology. I’ll include a global perspective, supported by specific examples and scientific findings.
-
-I’ll get started and will update you once the article draft is ready.
-
 # Harnessing Artificial Reefs for Marine Conservation
 
  *Concrete artificial reef modules (like this pyramid structure) are deployed to mimic natural reefs. Such structures provide shelter for fish and surfaces for corals and algae to grow, thereby boosting local marine biodiversity.*
